@@ -12,6 +12,6 @@ Roman dialogué de science-fiction en trois tomes :
 
 1. Un peuple des étoiles va de planète en planète au gré des intempéries.
 
-2. Histoire de son évolution le temps d'un éon systémique.
+2. Évolution des civilisations le temps d'un éon systémique.
 
 3. Migration lorsque la planète n'est plus viable.
