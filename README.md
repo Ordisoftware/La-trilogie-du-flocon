@@ -10,7 +10,7 @@ Roman dialogué de science-fiction en trois tomes :
 
 ## Synopsis
 
-1. Un peuple des étoiles va de planète en planète au gré des intempéries.
+1. Un peuple des étoiles va de planète en planète au gré des intempéries avec la Torah et des manuels dans ses bagages
 
 2. Évolution des civilisations le temps d'un éon systémique.
 
